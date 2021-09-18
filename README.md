@@ -1,2 +1,2 @@
 # Oasis
-To learn. To copy. To promote,
+To learn. To cope. To promote.
